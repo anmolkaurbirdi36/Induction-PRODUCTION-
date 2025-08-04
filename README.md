@@ -12,12 +12,12 @@ After that we enjoyed tea, beverages ,snacks and various other things refreshmen
 Dr. Harpreet Kaur Grewal, HOD of Applied Sciences, inaugurated the session with a warm welcome and an inspiring messages, encouraging students to stay motivated and focused in their academic journey. Dr. Sehajpal Singh, Principal of GNDEC, adressed the audience by highlighting the institutions academic strength and emphasizing the importance of embracing opportunities during college life . The Chief Guest, S. Maheshinder Singh, former Cabinet Minister and trustee of the Nankana Sahib Education Trust, delevered an inspiring speech . He spoke about the values of discipline while also reflecting on the vision of the college that continues to guide it's growth and legacy. 
 ## 1:30 pm
 Following the formal welcome event, students proceeded to their respective departments  to meet the faculty ,  tour the laboratories ,  attend orientation sessions and explore the available facilities
-## 1 AUGUST Day 3 Universal Human Values By Priya Mam and Then Arvind Dhingra Sir's amazing meeting
+## 1 AUGUST Day2 Universal Human Values By Priya Mam and Then Arvind Dhingra Sir's amazing meeting
 ## Academics : PROFIENCY TEST English Test (1:30PM -2:30PM) 
 ## MATHS TEST ( 2:30PM- 3:30 PM) 
 
 
-Today marked the third day of my college journey, and it was packed with learning, interaction, and leadership.
+Today marked the second  day of my college journey, and it was packed with learning, interaction, and leadership.
 
 Universal Human Values: A Path to Happiness
 Our first lecture of the day was on Universal Human Values, a subject that delves into the essence of what it means to live a fulfilling and content life. We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness.
@@ -29,9 +29,9 @@ The test was of English and Maths Profiency test.
 It included very basic questions from 8th std to 12th std  
 The English test was amazing. We really enjoyed while giving Test. 
 Very memorable moment 
-## Day 4:( 4 August) GitHub Introduction , Causmic club Introduction, MOTOR SPORTS INTRODUCTION.
+## Day 3:( 4 August) GitHub Introduction , Causmic club Introduction, MOTOR SPORTS INTRODUCTION.
 
-Day 4 of our induction program was a diverse and enriching experience, packed with valuable lessons and motivational insights.
+Day 3 of our induction program was a diverse and enriching experience, packed with valuable lessons and motivational insights.
 
 Morning: GitHub Introduction
 
