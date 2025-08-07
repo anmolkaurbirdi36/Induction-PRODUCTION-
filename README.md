@@ -42,3 +42,26 @@ Then we had Introduction on Motor sports by Randhir Sir. Sir asked all of us tha
 ## ( 10:30-12:30 ) 
 
 Then We had session by Priya Mam on Universal Human Values ( UHV ). 
+It was a very motivating lecture by mam 
+I literally felt like as if something is taught by my mother. I literally enjoyed the lecture. 
+Mam told us about relationship Human values ego self earned respect. These things were never taught in school days. But now in College Induction program it's like a new concept for all of us. We got motivated by Mam's lecture
+Honestly it was more about values respect as an Indian citizen to live in a society 
+
+## ENGLISH LECTURE 
+# ( ASTIK Sharma SIR ) 
+SIR gave us some questions during our first class of engineering English 
+1) Why GNDEC COLLEGE
+2) WHICH BRANCH
+3) WHY THIS BRANCH
+4) WEAKNESS
+5) STRENTH
+6) LETTER WRITING
+7) THESE QUESTIONS made us know about our decision. By answering these questions I got to know about more about myself. By God's grace im Extrovert not Introvert. sir told us about Introverts and extroverts
+   I really liked my First English Class .
+
+   ## P2P Lecture 
+It was by seniors they told us about programming language C++ . Seniors told us about Python Java C++ language. Then guided us on <iostream >
+input output error. Working of VS CODE 
+It was a peer 2 peer lecture. Seniors are literally the best!! . So good nature. Their attitude towards Juniors is like as if they teach their own younger brothers or sisters. 
+This nature of them or their behavior earned my respect. 
+Honestly It will be the best memorable day of C++ language. 
