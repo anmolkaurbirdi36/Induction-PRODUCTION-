@@ -65,3 +65,12 @@ input output error. Working of VS CODE
 It was a peer 2 peer lecture. Seniors are literally the best!! . So good nature. Their attitude towards Juniors is like as if they teach their own younger brothers or sisters. 
 This nature of them or their behavior earned my respect. 
 Honestly It will be the best memorable day of C++ language. 
+
+## 5 AUGUST, 2025 
+( AUDITORIUM DAY EVENING ) 
+Our classes were scheduled from 1pm to 4pm today. All three of our lectures were scheduled in the auditorium. The class seniors were telling us which clubs are there in the college. At which places, we can become members. Requirements. And they were telling us about the marks. Like, in total, out of 100, how many marks will be for attendance? How many marks will be for extra curricular activities? And they also told us that, if we go to NCC sports, we can get 15 marks extra in total. And after that, when our lecture got over, they had told us that our next lecture will be in the auditorium.
+
+## SHAFFY MAKAR MAM LECTURE ON MILLETS
+
+After that, there was a lecture related to millet. At that time, we were told that, how important are millets for us. Jowar, Ragi, etc. These are very good for our nutrition. And most of the people don't like to eat these things or they don't find them tasty. Because they didn't want to cook properly. And the teacher had to tell us many more details about it. But we didn't have much time. So, our head teacher told the teacher to tell us about cooking first. Because we didn't have much time. So, she told us that, how can we cook it properly? How can we contain its nutrients and fibres? Which will be very helpful for us.MAM'S THEORY REALLY HELPED US 
+## 
